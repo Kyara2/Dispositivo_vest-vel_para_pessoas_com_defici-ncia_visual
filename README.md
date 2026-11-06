@@ -1,0 +1,1 @@
+# Dispositivo_vest-vel_para_pessoas_com_defici-ncia_visual
